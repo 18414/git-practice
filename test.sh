@@ -1,1 +1,1 @@
-Srilanka won toss and chose bat
+Srilanka won toss and choose bat
